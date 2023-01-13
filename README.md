@@ -1,5 +1,4 @@
 PERONA ʕ •ᴥ•ʔ
-theme: jekyll-theme-time-machine
 
 Here are some ideas to get you started:
 Perona (ペローナ)
