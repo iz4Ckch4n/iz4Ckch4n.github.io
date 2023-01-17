@@ -19,8 +19,7 @@ me to him (my luv):
 
 
 
-PICS WITH MY HARONG 
-(ang dae tlga maka gets kang harong omg nlng 😔😔😔)
+my fave pics last yearr 🥰🥰😍😍
 
 
 
