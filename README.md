@@ -1,6 +1,6 @@
 PERONA ʕ •ᴥ•ʔ
 
-Here are some ideas to get you started:
+🧎‍♀️🧎‍♀️🧎‍♀️
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/q_HoT6pNNMs?clip=UgkxKbmP5Hs4grnvCLt0pbxHWhZSgkg0q-Yf&amp;clipt=EAAYkVU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
