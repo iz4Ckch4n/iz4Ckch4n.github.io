@@ -10,12 +10,14 @@ yass inlove era slayy
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/0LyH1LzmjQeZk58PpUxcH1?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 me to him (my luv): 
+
 ![image](https://user-images.githubusercontent.com/122416527/212853307-3aba6681-f03c-456c-88a7-bef73cd5b06c.png)
 
 
 
 pics with my harong 2022 
 (ang dae tlga maka gets kang harong omg nlng 😔😔😔)
+
 
 
 sa playground cuz we r kids 😝 choz
