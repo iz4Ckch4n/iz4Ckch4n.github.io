@@ -25,7 +25,7 @@ me to him (my luv):
 
 
 
-my fave pics last yearr 🥰🥰😍😍
+my fave pics last year & this year so far 🥰🥰😍😍
 
 
 
