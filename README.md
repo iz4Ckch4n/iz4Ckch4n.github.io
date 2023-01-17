@@ -7,15 +7,19 @@ we fell in love in october-
 
 
 yass inlove era slayy
+
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/0LyH1LzmjQeZk58PpUxcH1?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 me to him (my luv): 
 
-![image](https://user-images.githubusercontent.com/122416527/212853307-3aba6681-f03c-456c-88a7-bef73cd5b06c.png)
+![image](https://user-images.githubusercontent.com/122416527/212857751-36acc8ea-bd21-4878-9a6c-a0aa2766e187.png)
+
+![image](https://user-images.githubusercontent.com/122416527/212857898-2f0df0fd-49fd-42c1-a7b1-cfbc34fa7a86.png)
 
 
 
-pics with my harong 2022 
+
+PICS WITH MY HARONG 
 (ang dae tlga maka gets kang harong omg nlng 😔😔😔)
 
 
@@ -33,8 +37,5 @@ late celeb ng bday ko so slay tlga 🥰🥰
 
 REMINDER!!!
 
-
-![image](https://user-images.githubusercontent.com/122416527/212851239-64a6225b-539c-4409-9d95-36aa8f9a1a7b.png)
-
-![image](https://user-images.githubusercontent.com/122416527/212851512-07394191-19c7-40f6-801c-7ad8f76ab95b.png)
+![image](https://user-images.githubusercontent.com/122416527/212858528-85338abc-605e-4d45-8d95-6aa180a89e56.png)
 
